@@ -3,4 +3,4 @@ INTEGRANTE:
 
 HEINER ALBERTO HERRERA ARIAS
 
-Todo el mundo tenia grupo lo hice solo
+Todo el mundo tenia grupo me tocó hacerlo solo profe 
